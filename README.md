@@ -1,0 +1,1 @@
+# thailandjoy-assets
